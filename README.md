@@ -44,7 +44,7 @@ google 日曆（公開連結）如上
 3.3 清單建議  
 請來信到 awesomeblockchaintw@gmail.com 
 - 活動更正
-- 活動
+- 活動建議 or補充
 
 3.4 我是活動聯繫窗口，想主動更新活動資訊，怎麼加入？  
 來信 awesomeblockchaintw@gmail.com  
